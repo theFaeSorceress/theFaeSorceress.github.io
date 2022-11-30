@@ -15,7 +15,6 @@
 
 **个人博客：** [theFaeSorceress - 博客园 (cnblogs.com)](https://www.cnblogs.com/theFaeSorceress)
 
-**电子邮箱：** 2915637075@qq.com
 
 **在读大学： 华中科技大学**
 
